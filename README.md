@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dens1ne
+- 👀 I’m interested in nothing 🚫
+- 🌱 I’m currently learning python and c++ 💀💀💀
+- 😄 Pronouns: he/his
+- ⚡ Fun fact: i'm useless 😁😁😁
