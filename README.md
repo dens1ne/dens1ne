@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dens1ne
 - 👀 I’m interested in nothing 🚫 (hollow knight is the best game)
-- 🌱 I’m currently learning python and c++ 💀💀💀
+- 🌱 I’m currently learning python and c++ (html...) 💀💀💀
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: i'm useless 😁😁😁
